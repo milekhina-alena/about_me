@@ -7,4 +7,4 @@
 - Python is great! :)
   
   
-  ![my photo](alena/desktop/IMG_5023.heic)
+  ![my photo](https://vk.com/ali_ritcy?z=photo61348811_457239542%2Falbum61348811_0%2Frev)
